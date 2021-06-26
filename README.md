@@ -1,2 +1,2 @@
 # Xrystia
-Xrystia is a custom keyboard designed by me.
+（このページは現在準備中です）
